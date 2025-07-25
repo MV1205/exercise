@@ -4,4 +4,4 @@ Note that this toothbrush is totally safe to use for children, adults, pets, wil
 
 The toothbrush requires four AAA batteries. Perferably use rechargeable batteries.
 
-We are an environmentally conscious company. We like all sea animals.
+We are an environmentally conscious company. We like all sea animals, but we dislike dolphins.
